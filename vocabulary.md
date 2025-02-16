@@ -1,5 +1,11 @@
 # Vocabulary
 
+## 2025-02-16
+### Debauchery
+- **Meaning:** immoral or corrupt behaviour
+- **Example:** Their debauchery made them unfit to run the charity.
+- **Personal Connection:** The debauchery among politicians hinders development.
+
 ## 2025-02-15
 ### Promulgate
 - **Meaning:** to spread an idea or belief widely
