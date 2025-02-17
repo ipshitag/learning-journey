@@ -1,5 +1,10 @@
 # Everyday Learning
 
+## 2025-02-16  
+- **Shower Thoughts and Creativity 💡**: Dopamine is released when you’re relaxed (like in the shower), boosting creativity.  
+- **Ancient Alarm Clocks ⏰**: The Greeks made the first alarm clock around 250 BC using water to make noise.  
+- **Cats Can’t Taste Sweetness 😿**: Cats lack taste receptors for sweetness, making them the only mammals with this trait.
+
 ## 2025-02-15
 - **The Baader-Meinhof Phenomenon 👀** : Once you learn about something new, you start noticing it everywhere. Our brain is just more aware of it.
 - **The 5 hour Rule 📖**: Spend atleast one hour a day learning something new, be consistent.
