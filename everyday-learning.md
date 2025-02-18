@@ -1,5 +1,15 @@
 # Everyday Learning
 
+## 2025-02-18
+- **Honey Never Spoils 🍯**: Honey can last thousands of years without spoiling.  
+- **Octopus Hearts ❤️**: Octopuses have three hearts; one stops when they swim.  
+- **Sharks and Bones 🦈**: Sharks have no bones—only cartilage, like in human noses.  
+
+## 2025-02-17
+- **Baby Raccoons 🦝**: Baby raccoons are called cubs or kit and they learn hunting skill at around 5 months of age.
+- **Butterflies Taste with Their Feet 🦋**: They use their feet to taste leaves.  
+- **Cleopatra and Time 📜**: Cleopatra lived closer to the iPhone's invention than to the Great Pyramid's construction.
+
 ## 2025-02-16  
 - **Shower Thoughts and Creativity 💡**: Dopamine is released when you’re relaxed (like in the shower), boosting creativity.  
 - **Ancient Alarm Clocks ⏰**: The Greeks made the first alarm clock around 250 BC using water to make noise.  
