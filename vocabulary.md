@@ -1,5 +1,11 @@
 # Vocabulary
 
+## 2025-02-18
+### Credulous
+- **Meaning:** too willing to believe, easily deceived
+- **Example:** Credulous people often fall for scams.
+- **Personal Connection:** I used to be credulous as a fresher, but I've come a long way since then.
+  
 ## 2025-02-17
 ### Oneiric
 - **Meaning:** of or relating to dreams
