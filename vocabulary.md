@@ -1,5 +1,11 @@
 # Vocabulary
 
+## 2025-02-17
+### Oneiric
+- **Meaning:** of or relating to dreams
+- **Example:** The oneiric landscape inspired the filmmaker.
+- **Personal Connection:** The view of the Gharwali Himalaya range from Chandrataal was truly oneiric.
+
 ## 2025-02-16
 ### Debauchery
 - **Meaning:** immoral or corrupt behaviour
