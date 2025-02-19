@@ -1,5 +1,11 @@
 # Vocabulary
 
+## 2025-02-19
+### Complicit
+- **Meaning:** knowingly involved with others in wrongdoing.
+- **Example:** I didn't shoplift, but I was complicit in standing guard.
+- **Personal Connection:** By staying silent about the corruption, he was complicit in the wrongdoing.
+
 ## 2025-02-18
 ### Credulous
 - **Meaning:** too willing to believe, easily deceived
