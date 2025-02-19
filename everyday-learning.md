@@ -1,5 +1,10 @@
 # Everyday Learning
 
+## 2025-02-19
+- **Cats Once Delivered Mail 📬**: In the 1870s, Belgium tried using cats to deliver letters. It didn’t work—cats weren’t interested in following orders.
+- **Sea Otters Hold Hands While Sleeping 🦦**: They do this to keep from drifting apart in the water. 
+- **Wombat Poop is Cube-Shaped 🟫**: Wombats have cube-shaped poop to stop it from rolling away, helping them mark their territory effectively.  
+
 ## 2025-02-18
 - **Honey Never Spoils 🍯**: Honey can last thousands of years without spoiling.  
 - **Octopus Hearts ❤️**: Octopuses have three hearts; one stops when they swim.  
