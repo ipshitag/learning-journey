@@ -1,5 +1,10 @@
 # Everyday Learning
 
+## 2025-02-20
+- **Octopuses Have Garden Views 🐙**: Some octopuses collect shells and arrange them outside their dens like tiny underwater gardens.  
+- **Vikings Used Makeup Too ⚔️**: Both Viking men and women wore eyeliner made from crushed minerals to enhance their eyes.  
+- **The Mona Lisa Has No Eyebrows 🎨**: Leonardo da Vinci never painted eyebrows on her—or they faded over time. Historians still debate why!
+
 ## 2025-02-19
 - **Cats Once Delivered Mail 📬**: In the 1870s, Belgium tried using cats to deliver letters. It didn’t work—cats weren’t interested in following orders.
 - **Sea Otters Hold Hands While Sleeping 🦦**: They do this to keep from drifting apart in the water. 
