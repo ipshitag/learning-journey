@@ -1,6 +1,12 @@
 # Vocabulary
 
 ## 2025-02-19
+### Behemoth
+- **Meaning:** something enormous in size or power.
+- **Example:** The cruise ship is a behemoth in the town's tiny port.
+- **Personal Connection:** From the base camp of Chopta, Chandrashila looks like a behemoth, towering against the sky.
+
+## 2025-02-19
 ### Complicit
 - **Meaning:** knowingly involved with others in wrongdoing.
 - **Example:** I didn't shoplift, but I was complicit in standing guard.
