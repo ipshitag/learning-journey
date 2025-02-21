@@ -1,6 +1,12 @@
 # Vocabulary
 
-## 2025-02-19
+## 2025-02-21
+### Behemoth
+- **Meaning:** nonsense or useless ornamentation.
+- **Example:** The speech was full of folderol and lacked substance.
+- **Personal Connection:** The daily sync meetings are mostly folderol, full of pointless chatter and little progress.
+  
+## 2025-02-20
 ### Behemoth
 - **Meaning:** something enormous in size or power.
 - **Example:** The cruise ship is a behemoth in the town's tiny port.
