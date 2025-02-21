@@ -1,5 +1,11 @@
 # Everyday Learning
 
+## 2025-02-19  
+- **Tetrapods Protect Coasts 🌊**: The giant cement structures near beaches stop waves from eroding the shore. Their shape makes them stay put even in rough tides.  
+- **Bananas Are Berries, But Strawberries Aren’t 🍌**: Botanically, bananas qualify as berries, while strawberries do not.
+- **Van Gogh Ate Paint? 🎨**: Vincent van Gogh reportedly tried eating yellow paint, thinking it would make him feel happier inside. (Spoiler: It didn’t.)  
+- **True Berries 🍅**: A berry must come from a single ovary and have seeds inside. That’s why tomatoes, bananas, and even eggplants are berries—but strawberries are not!  
+
 ## 2025-02-20
 - **Octopuses Have Garden Views 🐙**: Some octopuses collect shells and arrange them outside their dens like tiny underwater gardens.  
 - **Vikings Used Makeup Too ⚔️**: Both Viking men and women wore eyeliner made from crushed minerals to enhance their eyes.  
