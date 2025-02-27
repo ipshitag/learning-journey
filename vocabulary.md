@@ -1,7 +1,13 @@
 # Vocabulary
 
+## 2025-02-22
+### Aesthete
+- **Meaning:** a person who loves beauty and art
+- **Example:** As an aesthete, they love visiting museums.
+- **Personal Connection:** Standing atop Chandrashila, gazing at the Himalayan expanse, I felt like a true aesthete, mesmerized by nature’s grand artistry.
+
 ## 2025-02-21
-### Behemoth
+### Folderol
 - **Meaning:** nonsense or useless ornamentation.
 - **Example:** The speech was full of folderol and lacked substance.
 - **Personal Connection:** The daily sync meetings are mostly folderol, full of pointless chatter and little progress.
