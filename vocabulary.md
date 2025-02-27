@@ -1,5 +1,11 @@
 # Vocabulary
 
+## 2025-02-23
+### Flummox
+- **Meaning:** to cause confusion or bewilderment
+- **Example:** This problem will flummox even experts.
+- **Personal Connection:** Trying to decode unclear client feedback completely flummoxes me.
+
 ## 2025-02-22
 ### Aesthete
 - **Meaning:** a person who loves beauty and art
