@@ -1,5 +1,11 @@
 # Vocabulary
 
+## 2025-02-25
+### Lament
+- **Meaning:** to express deep sorrow or regret.
+- **Example:** She lamented the loss of her childhood toy.
+- **Personal Connection:** I often lament how little time I have for myself amidst work and responsibilities.
+
 ## 2025-02-24
 ### Trammel
 - **Meaning:** to block or keep from through
