@@ -1,5 +1,17 @@
 # Vocabulary
 
+## 2025-02-27
+### Collquium
+- **Meaning:** an academic conference or seminar.
+- **Example:** She demonstrated a proof at the maths colloquium.
+- **Personal Connection:** These colloquiums feel less like intellectual discussions and more like a group therapy session for confused professionals.
+
+## 2025-02-26
+### Appal
+- **Meaning:** to fill with intense fear or disgust.
+- **Example:** The horror film appalled most viewers.
+- **Personal Connection:** It appals me how I can sit through an entire meeting, contribute nothing, and still leave exhausted.
+
 ## 2025-02-25
 ### Lament
 - **Meaning:** to express deep sorrow or regret.
