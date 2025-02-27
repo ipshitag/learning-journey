@@ -1,5 +1,11 @@
 # Vocabulary
 
+## 2025-02-24
+### Trammel
+- **Meaning:** to block or keep from through
+- **Example:** They trammel my every effort to help.
+- **Personal Connection:** Endless approval processes trammel my productivity.
+
 ## 2025-02-23
 ### Flummox
 - **Meaning:** to cause confusion or bewilderment
