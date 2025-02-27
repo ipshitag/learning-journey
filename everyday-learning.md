@@ -1,5 +1,46 @@
 # Everyday Learning
 
+## 2025-02-27 
+- **Chhatrapati Shivaji’s Coronation Was Delayed Due to Caste Rules ⚔️** – Before being crowned as Chhatrapati, Shivaji had to undergo elaborate purification rituals because Brahmins at the time refused to acknowledge him as a Kshatriya.  
+- **The Eiffel Tower Grows in Summer 🗼** – It expands by up to **15 cm** due to heat!  
+- **Ravens Can Mimic Human Speech 🐦** – Just like parrots, they can learn words and even mimic voices.  
+
+## 2025-02-26
+- **Sharks Existed Before Trees 🦈** – They’ve been around for **400 million years**, while trees only appeared **350 million years ago**.  
+- **Octopuses Have Three Hearts ❤️❤️❤️** – Two pump blood to the gills, one pumps it to the body. It stops beating when they swim.  
+- **Bubble Wrap Was Meant to Be Wallpaper 🫧** – The creators originally wanted it as textured wallpaper but later repurposed it for packaging.  
+
+## 2025-02-25
+- **Napoleon Wasn’t Actually Short 📏** – He was **5'7"**, average for his time, but British propaganda made him seem tiny.  
+- **Goldfish Have a Longer Memory Than 3 Seconds 🐠** – They can remember things for **months**, not seconds!  
+- **Your Tongue Never Rests 👅** – Even when you sleep, it constantly adjusts to keep your airway clear.  
+
+## 2025-02-24 
+- **Maharishi Dayanand Inspired Swadeshi Movement 🏛️** – His philosophy of self-reliance and "Back to the Vedas" influenced freedom fighters like Lala Lajpat Rai and Bhagat Singh.  
+- **Sloths Can Hold Their Breath Longer Than Dolphins 🦥** – They slow their heart rate and can hold it for **40 minutes**!  
+- **Scotland Has 421 Words for Snow ❄️** – Including "sneesl" (to start raining or snowing) and "feefle" (swirling snow).  
+
+## 2025-02-23
+- **The Leaning Tower of Pisa Wasn’t Supposed to Lean 🏛️** – It started tilting during construction due to weak foundation soil.  
+- **You Can Hear Space 🌌** – Not directly, but NASA converts space signals into eerie sounds.  
+- **Pineapples Take Two Years to Grow 🍍** – That’s why they’re expensive—they take forever to be ready!  
+
+## 2025-02-22 
+- **The First Alarm Clocks Only Rang at One Time ⏰** – The earliest models could only be set for **4 AM**!  
+- **Butterflies Can’t Fly If They’re Too Cold 🦋** – They need to warm up to at least **85°F (29°C)** to flap their wings.  
+- **Penguins Propose With Pebbles 💍🐧** – Male penguins search for the perfect pebble to give their mate as a ‘proposal’ gift!  
+
+## 2025-02-21 
+- **Shivratri Is the Longest Night of Meditation & Transformation 🕉️** – It is believed that on this night, Lord Shiva performs the *Tandava* and the energies of the universe are at their highest. Staying awake is symbolic of overcoming ignorance.  
+- **There's a Phobia of Long Words... And It's Super Long 📖** – *Hippopotomonstrosesquippedaliophobia* is the fear of long words. Irony at its finest.  
+- **Rain Smells Good Because of Bacteria 🌧️** – The scent, *petrichor*, comes from bacteria releasing oils when soil gets wet.  
+
+## 2025-02-20  
+- **Water Can Boil and Freeze at the Same Time 🧊🔥** – It’s called the *triple point*, where temperature and pressure make it exist in all states at once.  
+- **Ancient Egyptian Priests Plucked ALL Their Hair (Even Eyebrows) 🏺** – They believed cleanliness was sacred, so they removed every strand of hair.  
+- **There’s a Word for the Smell of Old Books 📚** – It’s called *bibliosmia*, caused by the breakdown of organic materials in paper.  
+
+
 ## 2025-02-19  
 - **Tetrapods Protect Coasts 🌊**: The giant cement structures near beaches stop waves from eroding the shore. Their shape makes them stay put even in rough tides.  
 - **Bananas Are Berries, But Strawberries Aren’t 🍌**: Botanically, bananas qualify as berries, while strawberries do not.
