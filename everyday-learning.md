@@ -1,5 +1,30 @@
 # Everyday Learning
 
+## 2025-03-04  
+- **National Science Day in India 🧪** – Celebrated in honor of **C.V. Raman**, who discovered **Raman Effect** (how light scatters), winning India’s first physics Nobel in 1930.  
+- **The Crystal Palace Exhibition Showcased the World 🌎** – The **Great Exhibition of 1851** in London displayed global inventions and crafts. India had a section showcasing textiles, jewelry, and carvings!  
+- **Ajrakh Printing is Over 4,000 Years Old 🎨** – This intricate block-printing art from **Gujarat & Sindh** dates back to the **Indus Valley Civilization**!  
+
+## 2025-03-03 
+- **The Eiffel Tower Was Completed in 1889 🗼** – Built for the **Exposition Universelle (World’s Fair)** in Paris, it was supposed to be **temporary**!  
+- **Bidriware: A Craft Born in Royal Courts ✨** – This unique metal inlay craft from **Bidar, Karnataka** uses pure silver on blackened zinc. Royals loved it!  
+- **Cats Domesticated Themselves 🐈** – Unlike dogs, cats chose to live near humans **on their own**—they liked our food supply and just stuck around!  
+
+## 2025-03-02  
+- **The Oldest Surviving Book Dates Back 2,500 Years 📖** – The **Etruscan Gold Book**, found in Bulgaria, is made of **24-karat gold pages**!  
+- **Pattachitra Paintings Depict Epics 🖌️** – This ancient art from **Odisha & West Bengal** tells **Ramayana & Mahabharata** stories with **natural dyes**.  
+- **Jellyfish Are Immortal (Kind Of) 🌊** – The species *Turritopsis dohrnii* can **revert to its juvenile state**, escaping death!  
+
+## 2025-03-01
+- **Alexander Graham Bell Patented the Telephone in 1876 ☎️** – But did you know **Elisha Gray** filed for a similar patent **just hours later**?! Bell got it first!  
+- **Kalamkari Art Was Used for Storytelling 🎭** – This **hand-painted & block-printed textile** from **Andhra & Tamil Nadu** originally depicted **Hindu mythological tales**.  
+- **Octopuses Have Blue Blood & 9 Brains 🧠🐙** – Their blood has **copper** (not iron), which turns it blue! Also, each arm has **its own mini-brain**.  
+
+## 2025-02-28  
+- **The First Stock Exchange Started Under a Banyan Tree 🌳** – In **1855, Mumbai**, 22 brokers gathered under a banyan tree near **Horniman Circle**—this later became the **Bombay Stock Exchange (BSE)**!  
+- **Zardozi Embroidery is Mughal Legacy ✨** – This luxurious embroidery with **gold & silver threads** flourished under the **Mughals** and is still famous in **Lucknow & Hyderabad**.  
+- **Your Stomach Lining Regenerates Every 4 Days 🦠** – If it didn’t, stomach acid would **digest your own stomach**!  
+
 ## 2025-02-27 
 - **Chhatrapati Shivaji’s Coronation Was Delayed Due to Caste Rules ⚔️** – Before being crowned as Chhatrapati, Shivaji had to undergo elaborate purification rituals because Brahmins at the time refused to acknowledge him as a Kshatriya.  
 - **The Eiffel Tower Grows in Summer 🗼** – It expands by up to **15 cm** due to heat!  
