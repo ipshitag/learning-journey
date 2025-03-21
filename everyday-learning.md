@@ -1,5 +1,90 @@
 # Everyday Learning
 
+## 2025-03-21  
+- **You Can Smell Rain 🌧️** – It’s called **petrichor**, caused by bacteria in soil!  
+- **Venus Spins the Wrong Way 🪐** – Unlike most planets, it rotates **backwards!**  
+- **Ancient Romans Used Urine to Clean Clothes 🤢** – It was full of ammonia, which helped whiten fabric!  
+
+## 2025-03-20  
+- **Dolphins Have Names 🐬** – They use **unique whistles** to call each other!  
+- **The First Computer Bug Was an Actual Bug 🦟** – A moth got stuck in an early computer in 1947!  
+- **Genghis Khan’s DNA is Everywhere 🏹** – 1 in 200 men today **descend from him** due to his vast empire!  
+
+## 2025-03-19  
+- **Water Can Boil & Freeze at the Same Time 🌡️** – This happens in a **vacuum at the triple point**!  
+- **Ancient Indian Temples Had Hidden Underground Rooms 🏛️** – Some were for **meditation, others for secret rituals**!  
+- **Google Was Almost Called "Backrub" 🖥️** – Its original name came from how it analyzed web backlinks!  
+
+## 2025-03-18  
+- **Cleopatra Lived Closer to the iPhone Than the Pyramids 📱** – The pyramids were built 2,500 years before her birth!  
+- **Rome Had Fast Food Stalls 🍽️** – Ancient Romans had **thermopolia**, small street-food shops like modern food courts!  
+- **Butterflies Can Taste With Their Feet 🦋** – Their feet have taste sensors to detect food!  
+
+## 2025-03-17  
+- **Einstein’s Brain Was Stolen 🧠** – A pathologist secretly took it for study after his death in 1955!  
+- **The Pyramids Were Once White & Shiny ⬜** – They were covered in **polished limestone**, reflecting the sun!  
+- **Bubble Tea Was Invented in Taiwan in the 1980s 🧋** – It started as a **fun idea** by a tea shop worker and became a global trend!  
+
+## 2025-03-16  
+- **Tea Bags Were Invented by Accident ☕** – A merchant sent **silk tea samples** in 1908, and people dunked them instead of opening them!  
+- **Sharks Existed Before Trees 🦈** – Sharks are **400 million years old**, but trees evolved only **350 million years ago!**  
+- **Glass is Actually a Slow-Moving Liquid? 🏺** – Old windows are thicker at the bottom because glass **flows over centuries!**  
+
+## 2025-03-15  
+- **Medieval Knights Wore Pink & Purple 🏰** – The idea that pink is "girly" is modern—knights loved **bright colors**!  
+- **The Moon Smells Like Gunpowder 🌙** – Apollo astronauts said moon dust had a **burnt smell** like gunpowder!  
+- **Ancient Chinese Earthquake Detector Worked in 132 AD 🌏** – It dropped balls from dragon mouths to show where tremors started!  
+
+## 2025-03-14  
+- **The Library of Alexandria Had Automatic Doors 📚🚪** – It used steam power for opening doors, like an ancient sensor system!  
+- **Jellyfish Are Immortal (Kind Of) 🌊** – *Turritopsis dohrnii* can revert to a younger stage and live forever!  
+- **Van Gogh Only Sold One Painting in His Life 🎨** – Despite his genius, he only sold *The Red Vineyard* before his death!  
+
+## 2025-03-13  
+- **The Oldest "Your Mom" Joke is 3,500 Years Old 😂** – Found on a Babylonian tablet from 1500 BCE!  
+- **Octopuses Have Three Hearts 💙** – Two pump blood to the gills, and one to the rest of the body!  
+- **Napoleon Wasn’t Actually Short 🤯** – He was **5’7”, average for his time**, but British propaganda made him seem tiny!  
+
+## 2025-03-12  
+- **Ancient Greek Statues Were Originally Colorful 🎨** – They weren’t white marble but painted in **bright colors!**  
+- **Bananas Are Berries, But Strawberries Aren’t 🍌🍓** – A botanical berry must have seeds inside, making bananas berries but not strawberries!  
+- **The First Vending Machine Was in Ancient Egypt 🏺** – It dispensed **holy water** in temples when a coin was inserted!  
+
+## 2025-03-11  
+- **Honey Never Spoils 🍯** – Archaeologists found **3,000-year-old honey** in Egyptian tombs that’s still edible!  
+- **Shakespeare Invented Over 1,700 Words ✍️** – He created words like **"gloomy," "bedroom," and "swagger"**!  
+- **Vikings Used Ravens to Navigate the Seas 🦅** – They released ravens mid-journey; if the birds didn’t return, land was nearby!  
+
+## 2025-03-10  
+- **The Leaning Tower of Pisa Wasn’t Always Leaning 🏗️** – It started tilting in 1178 due to **soft ground** but wasn’t fully stabilized until 2008!  
+- **Ancient Indian Surgery Was Advanced 🔪** – In 600 BCE, **Sushruta** performed complex surgeries like **nose reconstruction!**  
+- **The First Selfie Was in 1839 📸** – A man named **Robert Cornelius** took the world’s first self-portrait with a camera!  
+
+## 2025-03-09  
+- **Morse Code Was Almost Musical 🎼** – Early versions of Morse code were **based on music notes for rhythm and flow!**  
+- **Pompeii’s Ash Preserved Roman Life Perfectly 🏛️** – The volcanic eruption in 79 AD left **entire streets, paintings, and graffiti intact!**  
+- **Bubble Wrap Was Meant to Be Wallpaper 🫧** – The original invention was supposed to be **textured wallpaper**, not for packaging!  
+
+## 2025-03-08  
+- **Women Once Wore Poisonous Makeup 💄** – Lead-based face powders in the 18th century caused serious health issues!  
+- **The Wright Brothers Sold Bicycles First 🚴** – Before airplanes, they ran a bicycle shop, which helped them understand mechanics!  
+- **Ancient Romans Had Heated Floors 🔥** – The *hypocaust system* used **hot air under floors** for warmth in winter!  
+
+## 2025-03-07  
+- **Egyptians Invented the First Toothpaste 🦷** – A 4,000-year-old formula included **burnt eggshells, pumice, and myrrh** for fresh breath!  
+- **The Silk Road Connected More Than Trade 🏛️** – It wasn’t just about silk; it spread **ideas, religions, and even food** across Asia & Europe!  
+- **Taj Mahal’s Calligraphy is Optical Illusion 📜** – The Quranic verses are written so that they **look uniform from any angle**!  
+
+## 2025-03-06  
+- **Japanese Kintsugi Turns Broken Things Into Art ✨** – This technique repairs ceramics with **gold lacquer**, making flaws part of the beauty!  
+- **The Fibonacci Sequence Appears in Nature 🌿** – From sunflower spirals to pine cones, many natural patterns follow **1, 1, 2, 3, 5, 8...**!  
+- **Leonardo da Vinci Wrote in Mirror Script 🖋️** – He often wrote backwards, possibly to **prevent smudging** or keep ideas secret!  
+
+## 2025-03-05  
+- **Zero Wasn’t Just a Number, It Was a Concept 🧮** – Indian mathematician **Brahmagupta (7th century CE)** was the first to define zero **as a number** and its use in equations!  
+- **Persian Miniature Paintings Are Super Detailed 🎨** – These 13th-century paintings use **gold, lapis lazuli, and fine brushes** to create intricate, colorful art—often illustrating poetry.  
+- **The Eiffel Tower Was Almost Temporary! 🗼** – Built for the **1889 Paris Expo**, it was meant to be **dismantled after 20 years**, but it stayed because it was useful as a **radio tower**!  
+
 ## 2025-03-04  
 - **National Science Day in India 🧪** – Celebrated in honor of **C.V. Raman**, who discovered **Raman Effect** (how light scatters), winning India’s first physics Nobel in 1930.  
 - **The Crystal Palace Exhibition Showcased the World 🌎** – The **Great Exhibition of 1851** in London displayed global inventions and crafts. India had a section showcasing textiles, jewelry, and carvings!  
