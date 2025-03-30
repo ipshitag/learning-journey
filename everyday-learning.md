@@ -1,5 +1,50 @@
 # Everyday Learning
 
+## 2025-03-30  
+- **Pichwai Paintings 🐄** – Detailed temple paintings from Nathdwara, Rajasthan, depicting Lord Krishna.  
+- **Bidriware Metal Craft 🖤** – A striking black-and-silver metal art from Karnataka.  
+- **The Impressionist Revolution 🖌️** – A 19th-century French art movement that captured fleeting moments with quick, vibrant brushstrokes.  
+
+## 2025-03-29  
+- **Thangka Paintings 🏔️** – Buddhist scroll paintings from Ladakh and Sikkim, often used for meditation.  
+- **Toda Embroidery 🔴⚫** – A unique red-and-black embroidery style from the Nilgiri hills.  
+- **The Birth of Jazz 🎷** – Emerging in New Orleans, jazz blended African rhythms and European harmonies, shaping modern music.  
+
+## 2025-03-28  
+- **Kolam Rangoli 🌸** – Tamil Nadu’s daily ritual of creating intricate rice flour patterns.  
+- **Kutch Mirror Work ✨** – Gujarat’s dazzling embroidery style with small mirrors sewn into fabric.  
+- **Ballet’s Grace 🩰** – Originating in the Italian Renaissance, ballet evolved into a highly technical dance form in France and Russia.  
+
+## 2025-03-27  
+- **Madhubani Art 🌿** – A colorful folk art style from Bihar, often painted using fingers and twigs.  
+- **Zardozi Embroidery ✨** – A Mughal-era metallic thread embroidery, once done with real gold and silver.  
+- **The Baroque Extravagance 🎶** – An artistic style known for drama, grandeur, and highly decorative music and architecture in 17th-century Europe.  
+
+## 2025-03-26  
+- **Phad Paintings 📜** – Rajasthan’s narrative scroll paintings used to tell religious stories.  
+- **Blue Pottery 🔵** – A Persian-influenced Jaipur craft known for its striking cobalt blue glaze.  
+- **Opera Drama 🎭** – A fusion of music, acting, and elaborate costumes that began in Italy around the 16th century.  
+
+## 2025-03-25  
+- **Gond Art 🐘** – Madhya Pradesh’s tribal art featuring intricate dot patterns and nature themes.  
+- **Chikankari Embroidery 🧵** – Lucknow’s delicate floral embroidery, once a favorite of Mughal royalty.  
+- **The Renaissance Boom 📜** – A period of extraordinary art, literature, and science in 14th-17th century Europe.  
+
+## 2025-03-24  
+- **Kathputli Puppetry 🤹** – Rajasthan’s storytelling puppets, used for folklore and social messages.  
+- **Dokra Metal Craft 🏺** – A 4000-year-old lost-wax casting technique from Chhattisgarh and West Bengal.  
+- **The Gothic Revival 🏰** – A 19th-century movement that brought medieval-style architecture back into fashion in Europe.  
+
+## 2025-03-23  
+- **Pattachitra Paintings 🖼️** – Ancient Odisha and Bengal scroll paintings, known for mythological themes.  
+- **Bandhani Tie-Dye 🧣** – A vibrant fabric-dyeing technique from Gujarat and Rajasthan.  
+- **Waltz Elegance 💃** – Originating in 16th-century Europe, the waltz was once considered too intimate for polite society!  
+
+## 2025-03-22  
+- **Warli Art 🎨** – A tribal art form from Maharashtra, featuring geometric patterns depicting daily life.  
+- **Channapatna Toys 🧸** – Traditional wooden toys from Karnataka, made with natural dyes.  
+- **The Beatles & Indian Music 🎶** – The Beatles’ visit to Rishikesh in 1968 popularized Indian classical music in the West.  
+
 ## 2025-03-21  
 - **You Can Smell Rain 🌧️** – It’s called **petrichor**, caused by bacteria in soil!  
 - **Venus Spins the Wrong Way 🪐** – Unlike most planets, it rotates **backwards!**  
