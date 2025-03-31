@@ -1,5 +1,10 @@
 # Everyday Learning
 
+## 2025-03-31  
+- **Ovid’s Mysterious Banishment 📜** – The Roman poet Ovid was exiled by Emperor Augustus for a “poem and a mistake,” but the exact reason remains unknown.  
+- **Ancient Diseases in Mummies 🏺** – Tuberculosis and cancer have been found in ancient Egyptian mummies, proving these diseases existed thousands of years ago.  
+- **Emotional Symptoms & Psychology 🧠** – Psychological conditions can manifest as physical symptoms, like anxiety causing chest pain or stress leading to headaches.  
+
 ## 2025-03-30  
 - **Pichwai Paintings 🐄** – Detailed temple paintings from Nathdwara, Rajasthan, depicting Lord Krishna.  
 - **Bidriware Metal Craft 🖤** – A striking black-and-silver metal art from Karnataka.  
