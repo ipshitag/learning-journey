@@ -1,5 +1,20 @@
 # Everyday Learning
 
+## 2025-03-03  
+- **Trepanation: Drilling Holes in the Skull 🧠** – In ancient times, trepanation (drilling holes in the skull) was a common medical practice believed to treat headaches, epilepsy, and even mental illness. Skulls with healed holes suggest some patients survived the procedure.  
+- **Placebo & The Power of Belief ✨** – The placebo effect shows that belief itself can trigger real physiological changes. Ancient shamans and healers often used rituals that worked partly due to psychological expectations.  
+- **Imhotep: The First Physician 📜** – Imhotep, an Egyptian polymath (circa 2600 BCE), was one of the earliest recorded physicians. He wrote medical texts and was later deified as a god of healing.  
+
+## 2025-03-02  
+- **Doshas: Ayurveda’s Health Philosophy 🌿** – Ayurveda categorizes health into three Doshas: **Vata** (air & space – movement), **Pitta** (fire & water – metabolism), and **Kapha** (earth & water – structure). Imbalance in these leads to illness.  
+- **Yin & Yang in Medicine ☯️** – Traditional Chinese Medicine is based on the balance of **Yin** (cold, passive, dark) and **Yang** (hot, active, light). Illness arises when these forces are unbalanced.  
+- **Ancient Surgical Tools 🔪** – Archeological finds show that Romans, Egyptians, and Greeks used scalpels, forceps, and catheters, proving that surgery was surprisingly advanced in antiquity.  
+
+## 2025-03-01  
+- **Categorizing Illness: AVID SIGN 🏥** – Diseases can be remembered by **A**ffluence (lifestyle-related), **V**ascular (heart & blood vessels), **I**nflammation (immune response), **D**egeneration (aging-related), **S**tressor (mental/physical strain), **I**nherited (genetic), **G**enetic (mutations), **N**europlasma (brain tumors).  
+- **Bloodletting: A Misguided Cure 🩸** – For centuries, bloodletting was used to “balance the humors.” Even George Washington underwent this practice, which likely worsened his condition.  
+- **Maggots & Leeches in Medicine 🪱** – Surprisingly, maggots clean wounds by eating dead tissue, and leeches improve circulation. Both are still used in modern medicine.  
+
 ## 2025-03-31  
 - **Ovid’s Mysterious Banishment 📜** – The Roman poet Ovid was exiled by Emperor Augustus for a “poem and a mistake,” but the exact reason remains unknown.  
 - **Ancient Diseases in Mummies 🏺** – Tuberculosis and cancer have been found in ancient Egyptian mummies, proving these diseases existed thousands of years ago.  
