@@ -1,5 +1,20 @@
 # Everyday Learning
 
+## 2025-04-12  
+- **The Schuyler Sisters 🎭** – Angelica, Eliza, and Peggy were real-life sisters from a wealthy and influential family in Revolutionary-era New York. Popularized by the musical *Hamilton*, Angelica was a witty intellectual, Eliza co-founded the first private orphanage in New York, and Peggy... well, she mostly avoided the spotlight!  
+- **Brontë Sisters & Gothic Genius 🖋️** – Charlotte (*Jane Eyre*), Emily (*Wuthering Heights*), and Anne (*The Tenant of Wildfell Hall*) Brontë were 19th-century literary legends. They originally published under male pseudonyms (Currer, Ellis, and Acton Bell) to ensure their work was taken seriously.  
+- **Ringling Brothers Circus 🎪** – Founded in 1884 by five of the seven Ringling siblings, it became one of the largest and most famous circuses in the world. They eventually merged with Barnum & Bailey to form *The Greatest Show on Earth*. The last show was in 2017 before a relaunch was attempted in 2023 without animals.
+
+## 2025-04-11  
+- **Shamans: Bridging Worlds 🌿🔮** – Shamans are spiritual practitioners found in indigenous cultures worldwide, from Siberia to the Amazon. They enter altered states of consciousness to heal, guide, and connect with spirits. Their tools often include drums, herbs, and symbolic items.  
+- **Turritopsis dohrnii – The Immortal Jellyfish ♾️** – This tiny jellyfish can revert its cells to an earlier stage of life, essentially cheating death unless eaten or diseased. It’s a fascinating example of potential biological immortality.  
+- **The Mandela Effect 🧠👀** – A phenomenon where large groups of people remember something incorrectly, like the Berenstain/Berenstein Bears or Nelson Mandela’s supposed 1980s death. It raises questions about memory, perception, and parallel realities.
+
+## 2025-04-10  
+- **Corpse Brides in History 💀💍** – In parts of rural China and France, "ghost marriages" used to be performed to marry off deceased individuals to fulfill cultural obligations or bring peace to restless spirits.  
+- **Capybaras: Chill Kings of the Animal Kingdom 🐾👑** – Native to South America, these social, semi-aquatic rodents are known for their friendliness—even with crocodiles and birds! They’ve become internet darlings for their zen vibes.  
+- **Wearing Red = Winning More? ❤️🏆** – Some studies show that athletes in red uniforms win slightly more often. It’s thought the color boosts confidence and may even influence referee decisions subconsciously.
+
 ## 2025-04-08  
 - **Bioluminescence: Nature’s Glow-in-the-Dark ✨** – Found in deep-sea creatures, fungi, and even some insects like fireflies, bioluminescence is the production of light by living organisms. It helps in communication, predation, and camouflage.  
 - **The Library of Ashurbanipal 📚** – This 7th-century BCE library in Nineveh (modern-day Iraq) housed over 30,000 clay tablets, including the *Epic of Gilgamesh*. It’s considered the oldest known library.  
