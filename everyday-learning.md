@@ -1,5 +1,30 @@
 # Everyday Learning
 
+## 2025-04-17  
+- **Astronomy & the Ancient Cosmos 🌌** – In ancient times, astronomy was deeply tied to philosophy and religion. Babylonian astronomers tracked celestial movements for calendars, while the Greeks like Ptolemy supported geocentrism—the Earth at the center. Over time, thinkers like Copernicus and Galileo redefined our place in the universe.  
+- **John Wilkes Booth 🔫** – A famous American stage actor who assassinated President Abraham Lincoln at Ford’s Theatre in 1865. Booth was a Confederate sympathizer who believed Lincoln’s death would revive the South’s cause. He fled the scene and was killed 12 days later in a standoff.  
+- **Taxation in the Past 💰** – In ancient civilizations, taxes weren’t always monetary. Egyptians paid in grain, and the Inca used a labor tax called *mit’a*. In medieval Europe, peasants gave a portion of their produce to lords. Taxes evolved from barter-like systems to formal institutions over time.
+
+## 2025-04-16  
+- **Plato’s Perfect World 🌿** – Plato believed the world we perceive is just a shadow of the *real* world—one of perfect Forms or Ideas. His allegory of the cave described how most people live in ignorance, seeing only illusions, unless they pursue knowledge and truth.  
+- **Aristotle’s Cosmos & Elements 🔥🌍** – Unlike Plato, Aristotle focused on the observable world. He believed in four earthly elements (earth, water, air, fire) and a fifth heavenly one (aether). He also saw the universe as geocentric with heavenly spheres rotating in harmony.  
+- **Raphael & The School of Athens 🎨** – Raphael’s Renaissance masterpiece, *The School of Athens*, brings together the great minds of philosophy and science in one imaginary setting. Plato and Aristotle take center stage, with other figures like Socrates, Pythagoras, and even Raphael himself included.
+
+## 2025-04-15  
+- **Lunar vs Solar Calendars 📅** – Ancient cultures used the moon or the sun to measure time. The Islamic calendar is purely lunar, making its months shorter, while the Gregorian calendar is solar, based on Earth’s revolution around the sun. Some, like the Hebrew calendar, mix both systems.  
+- **The Ptolemaic System 🔭** – Claudius Ptolemy proposed a geocentric model of the universe in the 2nd century CE. His ideas dominated for 1,400 years until Copernicus' heliocentric theory challenged it in the 16th century.  
+- **Roman Tax Collectors (Publicani) 🏛️** – In Ancient Rome, tax collection was outsourced to private individuals called *publicani*. They often overcharged to pocket the difference. Tax farming was controversial and sometimes brutal.
+
+## 2025-04-14  
+- **Zodiac Origins ✨** – The zodiac has Babylonian roots, where astrologers divided the sky into 12 parts to track the moon’s path. This system spread to the Greeks and Romans, evolving into the horoscope traditions many know today.  
+- **Aristotle vs Plato: Ethics Edition ⚖️** – While Plato focused on the ideal and abstract Good, Aristotle was more practical. He believed virtue lies in finding balance—the “Golden Mean”—and that ethical living comes from habit and reason.  
+- **Renaissance Taxes 🎭💸** – During the Renaissance, city-states like Florence imposed taxes on income, land, and even luxury items. These funds supported public works, art commissions, and war efforts. Artists sometimes received tax exemptions in return for their contributions.
+
+## 2025-04-13  
+- **Celestial Spheres 🌠** – Ancient philosophers like Eudoxus and Aristotle believed the stars and planets were embedded in crystal spheres that rotated around the Earth. This idea lasted well into the medieval period.  
+- **Plato’s Astronomy 📚🌟** – Plato encouraged mathematical models to explain the heavens, urging astronomers to “save the appearances” with orderly, circular motion. This shaped astronomy for centuries.  
+- **Medieval Taxation 🏰** – In feudal Europe, taxes were often paid in kind (like grain or livestock). Kings and lords levied scutage (money paid instead of military service), tithes (church taxes), and tallage (a tax on peasants).
+
 ## 2025-04-12  
 - **The Schuyler Sisters 🎭** – Angelica, Eliza, and Peggy were real-life sisters from a wealthy and influential family in Revolutionary-era New York. Popularized by the musical *Hamilton*, Angelica was a witty intellectual, Eliza co-founded the first private orphanage in New York, and Peggy... well, she mostly avoided the spotlight!  
 - **Brontë Sisters & Gothic Genius 🖋️** – Charlotte (*Jane Eyre*), Emily (*Wuthering Heights*), and Anne (*The Tenant of Wildfell Hall*) Brontë were 19th-century literary legends. They originally published under male pseudonyms (Currer, Ellis, and Acton Bell) to ensure their work was taken seriously.  
