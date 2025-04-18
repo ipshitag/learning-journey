@@ -1,5 +1,10 @@
 # Everyday Learning
 
+## 2025-04-18  
+- **Aristarchus of Samos 🌞🌍** – Way ahead of his time, Aristarchus (3rd century BCE) was the first known person to propose a heliocentric model of the universe—that the Earth revolves around the Sun. His ideas were ignored in favor of the geocentric model until Copernicus revived them nearly 1800 years later!  
+- **Late Greek Astronomy & Precision 🔭** – Greek astronomers like Hipparchus and Ptolemy laid the groundwork for modern astronomy. Hipparchus (2nd century BCE) compiled the first star catalog, discovered precession, and created a trigonometric table. Though Ptolemy's *Almagest* stuck with geocentrism, it was the most accurate model of the cosmos for over a millennium.  
+- **Ancient Cryptography 🗝️📜** – Cryptography isn’t just modern tech! The ancient Greeks used the *scytale*, a cylinder tool used by Spartans to encode messages. Julius Caesar later developed the Caesar cipher, shifting letters by a fixed amount. These early methods were simple but laid the groundwork for secure communication.
+
 ## 2025-04-17  
 - **Astronomy & the Ancient Cosmos 🌌** – In ancient times, astronomy was deeply tied to philosophy and religion. Babylonian astronomers tracked celestial movements for calendars, while the Greeks like Ptolemy supported geocentrism—the Earth at the center. Over time, thinkers like Copernicus and Galileo redefined our place in the universe.  
 - **John Wilkes Booth 🔫** – A famous American stage actor who assassinated President Abraham Lincoln at Ford’s Theatre in 1865. Booth was a Confederate sympathizer who believed Lincoln’s death would revive the South’s cause. He fled the scene and was killed 12 days later in a standoff.  
