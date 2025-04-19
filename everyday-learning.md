@@ -1,5 +1,11 @@
 # Everyday Learning
 
+## 2025-04-19  
+- **Melancholy & the Myth of Black Bile 🖤** – The word *melancholy* comes from the Greek *melas* (black) and *chole* (bile). Ancient Greek medicine, especially through Hippocrates and later Galen, taught that an excess of this mysterious black bile caused sadness and depression. It was one of the four humors thought to govern human health and temperament.  
+- **Black Bile & Cancer? 😷** – Galen went a step further, theorizing that black bile didn’t just make you gloomy—it caused cancer. He believed tumors formed from an overabundance of this fluid, a theory that persisted into the Middle Ages before scientific inquiry challenged it.  
+- **Vesalius & the Anatomical Revolution 🔬** – Andreas Vesalius (1514–1564) revolutionized medicine with his detailed anatomical drawings in *De humani corporis fabrica*. He dissected human bodies to search for Galen’s black bile—only to find it didn’t exist. His work debunked centuries of anatomical misconceptions and marked a turning point in medical science.  
+- **William Halsted & Surgical Sterility 🧼🧤** – A pioneering 19th-century American surgeon, Halsted introduced the use of rubber gloves during surgery and emphasized sterile techniques. Ironically, he struggled with addiction to cocaine and morphine—substances he first used experimentally for anesthesia. Despite this, his innovations shaped modern surgical practice. He is known for his radical masectomy surgeries.
+
 ## 2025-04-18  
 - **Aristarchus of Samos 🌞🌍** – Way ahead of his time, Aristarchus (3rd century BCE) was the first known person to propose a heliocentric model of the universe—that the Earth revolves around the Sun. His ideas were ignored in favor of the geocentric model until Copernicus revived them nearly 1800 years later!  
 - **Late Greek Astronomy & Precision 🔭** – Greek astronomers like Hipparchus and Ptolemy laid the groundwork for modern astronomy. Hipparchus (2nd century BCE) compiled the first star catalog, discovered precession, and created a trigonometric table. Though Ptolemy's *Almagest* stuck with geocentrism, it was the most accurate model of the cosmos for over a millennium.  
