@@ -16,7 +16,7 @@ This is not about showcasing expertise but about embracing the process of learni
 ---
 
 ## What's Inside? 📂  
-- **Everyday Learnings:** 📝 Notes on new concepts, ideas, and skills explored each day.  
+- **Everyday Learnings:** 📝 Notes on new concepts, ideas, thoughts and skills explored each day.  
 - **Vocabulary:** 📚 Words encountered daily, along with their meanings and example sentences.  
 - **Review Tracker:** ⏰ A spaced repetition schedule to reinforce memory retention.  
 
