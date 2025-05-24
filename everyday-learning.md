@@ -1,5 +1,9 @@
 # Everyday Learning
 
+## 2025-05-24
+- Kendo is a form of martial art which uses bamboo.
+- Galileo Galilee did not *invent* telescope, instead made it better and popularized it.
+
 ## 2025-04-19  
 - **Melancholy & the Myth of Black Bile 🖤** – The word *melancholy* comes from the Greek *melas* (black) and *chole* (bile). Ancient Greek medicine, especially through Hippocrates and later Galen, taught that an excess of this mysterious black bile caused sadness and depression. It was one of the four humors thought to govern human health and temperament.  
 - **Black Bile & Cancer? 😷** – Galen went a step further, theorizing that black bile didn’t just make you gloomy—it caused cancer. He believed tumors formed from an overabundance of this fluid, a theory that persisted into the Middle Ages before scientific inquiry challenged it.  
