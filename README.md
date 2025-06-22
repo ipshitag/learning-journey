@@ -38,4 +38,4 @@ I’m not an expert, just someone who’s curious and dedicated to learning ever
 This repo is a reflection of my journey, with all its ups and downs. 🎢  
 
 Thanks for stopping by! 🌼  
-Happy learning! 🎈✨  
+Happy learning! ✨  
