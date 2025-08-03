@@ -1,5 +1,8 @@
 # Everyday Learning
 
+## 2025-07-03
+- Maintaining stuff is hard.
+
 ## 2025-05-25
 - Manatee's are large aquatic mammals known as sea cows.
 - The word millennium has two N's in the middle, because it comes from the Latin word for "year", annus. If you spell it with one N, this changes annus to anus, which makes it mean not "a thousand years" but rather "a thousand assh----".
