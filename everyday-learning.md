@@ -1,5 +1,8 @@
 # Everyday Learning
 
+## 2025-09-05
+- Honey Never Spoils.
+
 ## 2025-07-03
 - Maintaining stuff is hard.
 
