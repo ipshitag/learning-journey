@@ -35,7 +35,7 @@ This is a work in progress, and I’m excited to see how it evolves. 🎨
 
 ## P.S. 💌  
 I’m not an expert, just someone who’s curious and dedicated to learning every day.  
-This repo is a reflection of my journey, with all its ups and downs. 🎢  
+This repo is a reflection of my journey, with all its ups and downs. 🎢 There are gaps and relapses, but to stand up again is the main challenge.
 
 Thanks for stopping by! 🌼  
 Happy learning! ✨  
