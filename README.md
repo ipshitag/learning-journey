@@ -5,7 +5,7 @@ This is my space for continuous growth, where I document my daily learnings, exp
 
 ----
 
-## Why This Repo? 🤔
+## Why This Repo?
 I believe in the power of consistent learning and reflection. By maintaining a daily habit of logging new insights and words, I aim to:  
 - 🔍 **Strengthen my knowledge** across various domains.  
 - 💬 **Enhance my vocabulary** for better communication.  
