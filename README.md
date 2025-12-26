@@ -1,6 +1,6 @@
 # Personal Learning Journey.
 
-Welcome to my personal learning repository! 🎉  
+Welcome to my personal learning repository! 
 This is my space for continuous growth, where I document my daily learnings, expand my vocabulary, and track my progress. 
 
 ----
